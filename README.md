@@ -13,7 +13,7 @@ _标签：伪娘 计算机 网络 硬件 二次元 神椿 KAMITSUBAKI STUDIO 异
 ### 宣传一下
 
 1. QQ群聊(有很多可爱的小男娘喵，欢迎来玩喵~)：1048961261  
-   [点击链接加入群聊【301 Moved Permanently】：https://qm.qq.com/q/xOKDCpwclG](https://qm.qq.com/q/xOKDCpwclG)
+   [点击链接加入群聊【301 Moved Permanently】：https://qm.qq.com/q/xOKDCpwclG](https://qm.qq.com/q/xOKDCpwclG)  
    (不出意外的话，这个群应该是不会被封的，但如果哪天真被封了，我会在我的个人网站-->相关链接页面中放出新的群号)
 2. 个人网站：[www.tianlsama.cn](https://www.tianlsama.cn)
 3. B站(点个关注吧喵，求求了喵)：[UID: 3493259009591847](https://space.bilibili.com/3493259009591847)
